@@ -1,6 +1,7 @@
-## HOW DO YOU USE GITHUB
-### Hi
-My name is gusborg (my real name my birth certificate)i like fnf, clue buddy, shitposting, sonic exe, freight/shipping, TOR, camping, fl studio, krita, being happy, baldi, LaTeX, Edging, and Chess.  
+### Ok
+My name is gusborg (my real name my birth certificate)i like fnf, clue buddy, shitposting, sonic exe, freight/shipping, TOR, camping, fl studio, krita, being happy, baldi, LaTeX, Edging, and Chess.
+
+![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=gusborg88)
 ### Websites you might find me
 - [Youtub](https://www.youtube.com/@gusborg8/videos)
 - [Twidder *i will NOT call it x*](https://twitter.com/gusborg8)
