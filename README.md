@@ -5,7 +5,6 @@ My name is gusborg (my real name my birth certificate)i like fnf, clue buddy, sh
 ### Websites you might find me
 - [Youtub](https://www.youtube.com/@gusborg8/videos)
 - [Twidder *i will NOT call it x*](https://twitter.com/gusborg8)
-- [Github (where you are right now)](https://github.com/gusborg88)
 - [Gamebananana](https://gamebanana.com/members/2146466)
 - [Soundcluod](https://soundcloud.com/gusborg)
 - [Raw blocks](https://www.roblox.com/users/5401729824/profile)
@@ -19,3 +18,5 @@ A lot of music (on my youtube channel and soungdcloud)
 friday night clickin (we dont talk about that one)  
 (Why do i use parentheseses so much)  
 Attack of the zombies (roblox game)
+
+The 88 in my username is related to mario kart i swear, you can ask me about it, it was a little Whoopsie Daisies when i signed up
