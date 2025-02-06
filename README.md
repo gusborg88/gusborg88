@@ -1,7 +1,7 @@
 https://github.com/user-attachments/assets/c80b5e67-5931-4163-979e-05fa53b15676
 
 ### Ok
-My name is gusborg (my real name my birth certificate)i like fnf, shitposting, sonic exe, being gay, brushing my teeth, fl studio, krita, being happy, baldi, LaTeX, Edging, and Chess.
+My name is grobsuG (my real name my birth certificate)i like fnf, shitposting, sonic exe, brushing my teeth, fl studio, krita, being happy, baldi, LaTeX, Edging, and Chess.
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=gusborg88)
 ### Websites you might find me
 - [Youtube](https://www.youtube.com/@gusborg8/videos)
